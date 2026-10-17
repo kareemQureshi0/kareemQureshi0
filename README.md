@@ -21,4 +21,4 @@ Final-year Computer Science student at International Islamic University, Islamab
 
 ## Links
 
-[LinkedIn](https://www.linkedin.com/in/abdul-kareem-8a5034353) · [X (Twitter)](https://www.x.com/kareemJPLC) · [Email](mailto:abdulkareem7646767@gmail.com) · IIUI, Islamabad
+[LinkedIn](https://www.linkedin.com/in/abdul-kareem-8a5034353) 
